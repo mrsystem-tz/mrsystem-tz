@@ -15,7 +15,7 @@
 ---
 
 ## 🌐 CONNECT WITH ME
-Msaidie adui au mdau kukupata kwa urahisi kwenye mitandao yako ya kijamii:
+
 
 <p align="left">
   <a href="https://www.youtube.com/@mrsystem-tz" target="_blank">
